@@ -1,4 +1,4 @@
-# 
+# Profissional arbitrage trading bot ferramentas para Mac OS | Gratuito arbitrage trading bot ferramentas para PC Windows. Com processamento em lote e monitoramento de baixa frequência — otimizado para máximo desempenho em cada plataforma.
 
 
 
